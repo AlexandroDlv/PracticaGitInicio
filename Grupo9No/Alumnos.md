@@ -6,3 +6,5 @@ Alexandro De la Vega Rdz
 Erick Aguilar 
 Hiram Quintana
 Vitaliano
+Luis manuel batista
+Sebastian garcia
