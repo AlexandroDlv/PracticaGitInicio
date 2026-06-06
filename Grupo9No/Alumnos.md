@@ -1,6 +1,8 @@
 Jaqueline Salazar
-Hiram Quintana
-Erick Aguilar
 Daniel Peregrino
-Fernando Alarcon
-Alexandro De la Vega Rodriguez
+Sheila Santoyo
+Arturo Valladares
+Alexandro De la Vega Rdz
+Erick Aguilar 
+Hiram Quintana
+Vitaliano
