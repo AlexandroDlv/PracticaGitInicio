@@ -4,3 +4,5 @@ Tijuana
 Aldama
 Durango
 Torreon
+Tamaulipas
+Matamoros
